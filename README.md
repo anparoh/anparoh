@@ -1,3 +1,3 @@
-### Hey, I'm San1nty! 👋
+### Hey, I'm Anparoh! 👋
 
-https://san1nty.com
+https://Anparoh.com

@@ -1,3 +1,3 @@
-### Hey, I'm Anparoh! 👋
+### Hey, I'm Nvcsk! 👋
 
-https://Anparoh.com
+https://nvcsk.com
